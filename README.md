@@ -13,7 +13,7 @@ At MentorJi, Our vision is simple yet profound:
 - Flexible Learning
 - Practical Approach
 - Community
-- Continuous Growth
+- Continuous Growth 
 
 ## 🚀 USEFUL PLAYLISTS
 
