@@ -2,7 +2,7 @@
 
 ![MentorJi Logo](https://mentorji.live/store/1/light-170w-40h.png)
 
-Welcome to MentorJi - Your Ultimate Learning Partner! 🚀 
+Welcome to MentorJi - Your Ultimate Learning Partner! 🚀
 
 ## 📚 OUR VISION
 At MentorJi, Our vision is simple yet profound:
