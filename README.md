@@ -29,7 +29,7 @@ At MentorJi, Our vision is simple yet profound:
 - [Biology Classes for CBSE Board Exam by Vikas Jain Sir](https://youtube.com/playlist?list=PL35CWG1_rR5NuEwgemU2htsFB8Sceq2Ha&feature=shared)
 - [Physics Classes for CBSE Board Exam by Vikas Jain Sir](https://youtube.com/playlist?list=PL35CWG1_rR5NXlVnrz3EaLZXSGal6h7Wg&feature=shared)
 
-### CURRENT AFFAIRS
+### CURRENT AFFAIRS 
 - [Today in History](https://youtube.com/playlist?list=PL35CWG1_rR5Ou_bXJ2wHRFR0dkvR5Qlzp&feature=shared)
 - [Today's Special](https://www.youtube.com/playlist?list=PL35CWG1_rR5OX0lLjRy1T7ZDdq9h-bmEY)
 
